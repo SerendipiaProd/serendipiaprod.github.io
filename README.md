@@ -1,1 +1,0 @@
-# serendipiarod.github.io
